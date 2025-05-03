@@ -11,4 +11,3 @@ Favorite programming languages 🧑‍💻
 Happiness with salary & current role 😊
 
 Gender breakdown & global map 🌍
-
